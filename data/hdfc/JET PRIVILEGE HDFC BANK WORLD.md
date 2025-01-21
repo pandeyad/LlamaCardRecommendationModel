@@ -1,0 +1,109 @@
+# JET PRIVILEGE HDFC BANK WORLD
+
+
+Important information: Dear Customers, Intermiles card is phased out and we are in the process of migrating your existing card to other HDFC bank credit card. All the existing customers that have already been migrated to other credit cards were sent the SMS and Email communication in Jan-Feb'23 and Dec’23 (30 days in advance) and post 30 days have been migrated.Any remaining customers as of Nov’24 have been sent the SMS and Email communication on 14th Nov’24 and post 30 days will start getting migrated to Diners Millennia credit card. Also, please note, effective 15th Dec’24, all the product features on your Intermiles credit card will be discontinued.
+
+
+## FEATURES
+####
+
+
+####Card Type
+Travel and Lifestyle
+
+####Welcome Benefits
+InterMiles Silver membership by default for the first year(For details for the Silver tier membership, please visit https://www.intermiles.com/rewards-program/tiers-recognition/silver)
+Embark on your journey of privileges by availing up to 8,000 Bonus InterMiles3,000 InterMiles upon spending Rs. 6,000 with in first 30 days of card set up**5,000 InterMiles on total retail spends of Rs.90,000 and above, within first 90 days
+Experience savings on your flight bookings:
+Rs. 750  Flight Discount vouchers* for the first yearRs. 2000  Hotel Discount vouchers* for the first year
+*These Renewal benefits are only applicable on realization of membership fee. Kindly click here for discount voucher Terms & Conditions
+InterMiles once credited to the customer’s InterMiles account cannot be converted to Reward Points.
+
+####Renewal Benefits
+Continue the exciting journey with 3,000 InterMiles upon spending Rs. 6,000 with in first 30 days of Anniversary date **
+Experience savings on your Flight & Hotel bookings:
+Rs. 750  Flight Discount vouchers*Rs. 1000  Hotel Discount vouchers*        
+*These Renewal benefits are only applicable on realization of membership fee. kindly click here for discount voucher Terms & Conditions
+Please Note - You will be provided with a InterMiles HDFC Bank Co-brand Credit Card plastic on the VISA franchisee upon the renewal of your existing MasterCard variant. For the Card renewal date, please check your existing Card expiry date. For a seamless experience , kindly ensure your contact details are updated in the Bank records at all time. (Effective Card renewal from 01st October'17)
+
+####InterMiles Accrual Programme
+Earn 6 InterMiles on every Rs. 150 spent on retail spendsEarn 12 InterMiles on every Rs. 150 spent on every flight ticket booked on http://flights.intermiles.comEarn 12 InterMiles on every Rs. 150 spent on every Hotel booked on Interbook.intermiles.com
+Note:1. Only retail purchases above Rs. 150 qualify for InterMiles. 2. Cash advance, fuel transaction, fees and other charges do not accrue any InterMiles. 3. EasyEMI and e-wallet loading transactions will not accrue InterMiles4. InterMiles accrued will be reversed if a retail transaction is converted into SmartEMI5. InterMiles accrued for Insurance transactions will have a maximum cap of 2,000 per Day.
+
+####Privileges on Etihad Airways (Applicable for all customers)
+Avail 5% discount* on Etihad Airways Economy Class tickets booked on http://flights.intermiles.comAvail 10% discount* on Etihad Airways Business Class tickets booked on https://flights.intermiles.comEarn 2.5X bonus InterMiles for Etihad Airways tickets booked on http://flights.intermiles.com
+*Terms and Conditions apply, kindly click here to read through the terms and conditions
+
+####Domestic Lounge Program
+Be greeted with luxury each time you travel, with access to select lounges at airports in India with our network partners. Present your InterMiles HDFC Bank World / Signature Credit Card along with your Boarding Pass to access.
+
+####VISA Lounge Program
+“Avail 16 complimentary visits Per Year (4 per quarter) when you travel.
+Terms and Conditions Apply. Lounges might charge a nominal fee for card validation depending on the network program.Please Click Here for the list of participating lounges.”
+
+####MasterCard Lounge Program
+Avail 16 complimentary visits (4 per quarter) when you travel.
+
+####Priority Pass Membership
+The Priority pass membership provides you with complimentary enrolment worth $99 into the Priority Pass Programme allowing you preferential access to more than 600 airport lounges around the world, no matter which airline or class you fly. It offers you well deserved rest, refreshment and the use of business facilities like phones, fax, Internet access and conference rooms. The Primary Card holder can enjoy upto 5 free visits to the International Lounges every year.
+Please note :1) All Lounge visits within India using priority pass will be charged at US $27 + GST as applicable per person per visit i.e.. 1st Feb 20182) Lounge Visits outside India exceeding the complimentary visits will be charged at US $27 + GST as applicable per person per visit i.e.. 1st Feb 20183) All guests visits using Priority pass would be charged at US $27 + GST per visit per guest4) Charges will be billed to your Credit Card statement usually within 90 days of the month in which you visited the lounge5) Any lounge visits out of priority pass network will be chargeable as per the discretion of the respective lounges6) The dollar conversion rate will be applicable as per the prevailing rate on billing date
+*The above fee is indicative and usage charges may vary from lounge to lounge. Please visit www.prioritypass.com for more details.
+
+####Renewal Membership Fee Waiver
+Spend Rs. 3 lac on your InterMiles HDFC Bank Signature/World Credit Card within 12 months of the Card setup date or within 12 months of Card renewal date and get the renewal fee for the next year waived off*
+* In case of fee waiver, the member will not receive Flight/Hotel discount vouchers
+
+####Fuel Surcharge Waiver
+Effective 15th April 2016, InterMiles will not be accrued on fuel transactions. GST charges on fuel surcharge is non-refundable.1% fuel surcharge waiver at all fuel stations across India.       (on minimum transaction of ₹400, Waiver capped at ₹500 every billing cycle.)
+Click here for Details
+
+####Safe & Secure Transactions
+DIP your Chip Card at any Chip enabled POS or swipe your Card at any non-chip POS (Regular POS).
+
+####Zero liability on lost Card
+If you lose your Card, report it immediately to our 24-hour call centre. After reporting the loss, you have a zero liability on any fraudulent transactions made with your Card.
+
+####Lowest Revolving Credit
+Enjoy Revolving Credit on your Credit Card at an interest rate of 3.6% per month. ( Starting  01-09-2020)
+
+####Interest free Credit
+Avail up to 50 days of free credit period from the date of purchase (subject to the submission of the charge by the Merchant).
+
+####Cards for your Entire Family
+You can avail up to 3 Add-on Cards* for your immediate family members (over 18 years) to share the joy of owning a InterMiles HDFC Bank Credit Card.
+* All Card features on InterMiles HDFC Bank Credit Card is applicable for the Primary Card Holder only and is not applicable for Add-On Card Holders.
+
+####Dining Benefits
+Save upto 20% on dining bills paid through Dineout Pay via your InterMiles HDFC Bank Signature Credit Card (15% Dineout Discount + Additional 5% HDFC Bank Discount).
+Maximum discount per transaction capped at Rs 1000.  Maximum discount per customer per month capped at Rs 1000.
+Please Click Here for more details.
+
+
+
+## ELIGIBILITY
+####
+You are eligible for a InterMiles HDFC Bank Signature Credit Card based on the following
+For Salaried Indian national
+Age: Min 21 years & Max 60 Years,Net Monthly Income> Rs 90,000
+For Self Employed Indian national
+Age: Min 21 years & Max 65 YearsIncome: ITR > Rs 12 Lakhs per annum
+
+
+
+## FEES AND CHARGES
+####
+Joining/ Renewal Membership Fee – Rs. 2500/- + Applicable Taxes.
+click here ( MITC) to view details of InterMiles HDFC Bank Signature Credit Card Fees and Charges
+GST levied will not be reversed on Any dispute on Fee & Charges
+*Terms & Conditions Apply
+NOTE: For card sourced starting 01-11- 2020, Below T&Cs are applicable
+1. The Bank reserves the right to cancel the Card in case the Card remains inactive and is not used for effecting any transaction for a continuous period of 6 (Six) months after prior written notice sent on the email address and/or phone number and/or communication address, registered in the records of the Bank.
+
+####
+FAQs
+
+
+
+## ACTIVATION STEPS
+Nothing specific
+
